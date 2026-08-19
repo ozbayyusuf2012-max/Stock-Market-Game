@@ -1,0 +1,3 @@
+Its a simple game of random luck and chaos, dont try to outsmart the system since it is just enire luck...
+
+Also anything might happen in cluding crisis among companies and wild changes to the stocks.
